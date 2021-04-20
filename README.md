@@ -2,4 +2,4 @@
 - 👀 I’m interested in C++
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on C++
-- 📫 How to reach me Sωiter~#2092
+- 📫 How to reach me Discrod(Sωiter~#2092)
